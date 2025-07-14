@@ -7,4 +7,7 @@
 
 ## ✨ Fun Facts
 - 🌱 I'm currently learning C and Python.
-- 📫 How to reach me: ydhkms0904@gmail.com
+- 📫 How to reach me: ydhkms0904@gmail.com![___ 2](https://github.com/user-attachments/assets/a344820d-a790-4d6c-a3da-cd5510cf451d)
+
+
+![Coding](https://media.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif)
