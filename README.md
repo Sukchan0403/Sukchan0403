@@ -11,6 +11,5 @@
 
 
 
-- ![___ 2](https://github.com/user-attachments/assets/a344820d-a790-4d6c-a3da-cd5510cf451d)
 
 
